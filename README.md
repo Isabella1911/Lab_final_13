@@ -1,1 +1,1 @@
-Tuve que borrar el otro repositorio ya que no subia algunos archivos, disculpe la tardancia y feliz noche.
+Tuve que borrar el otro repositorio ya que no lograba subir algunos archivos del proyecto, disculpe la tardancia y feliz noche.
